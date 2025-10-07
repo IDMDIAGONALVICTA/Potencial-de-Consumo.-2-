@@ -1,0 +1,1 @@
+# Potencial-de-Consumo.-2-
